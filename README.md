@@ -13,5 +13,6 @@ Meu nome é **Eliezer** ❤
 
 @eliezer
 
-![[descrição do GIF](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdHZoNHRjbHF6ZnJ5OG44ZDVwNm00enA5eW5lZDQ2bjJ2OTZ0N3RpayZlcD12MV9naWZzX3NlYXJjaCZjdD1n/A5KGHdmmxHdwk/giphy.gif)]
+![Uploading image.png…]()
+
 
