@@ -11,6 +11,5 @@ Meu nome é **Eliezer** ❤
 ### Você pode entrar em contato comigo 📢
 00001096062070sp@al.educacao.sp.gov.br
 
-@eliezer
-
-![ ]([link GIF do Tenor](https://media1.tenor.com/m/d__-mVCZBbIAAAAC/pookie.gif)
+@eliezer 
+[](https://media1.tenor.com/m/d__-mVCZBbIAAAAC/pookie.gif)]
