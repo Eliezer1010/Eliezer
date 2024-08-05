@@ -13,6 +13,6 @@ Meu nome é **Eliezer** ❤
 
 @eliezer
 
-![Uploading image.png…]()
+![descrição do GIF](<iframe src="https://giphy.com/embed/DAof5KweijCUg" width="480" height="437" style="" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/sasuke-DAof5KweijCUg">via GIPHY</a></p>)
 
 
