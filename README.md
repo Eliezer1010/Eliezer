@@ -9,7 +9,8 @@ Meu nome é **Eliezer** ❤
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 ### Você pode entrar em contato comigo 📢
-00001096062070sp@al.educacao.sp.gov.br
+00001096062070sp@a!l.educacao.sp.gov.br
 
 @eliezer 
-[] (https://media1.tenor.com/m/d__-mVCZBbIAAAAC/pookie.gif)
+
+![](https://media1.tenor.com/m/5hsOWLMn9gwAAAAC/jose-mourinho-dancing.gif)
