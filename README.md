@@ -12,4 +12,5 @@ Meu nome é **Eliezer** ❤
 00001096062070sp@al.educacao.sp.gov.br
 
 @eliezer 
-[](https://media1.tenor.com/m/d__-mVCZBbIAAAAC/pookie.gif)]
+
+!.[_] (https://media1.tenor.com/m/d__-mVCZBbIAAAAC/pookie.gif)
